@@ -55,5 +55,4 @@ expertise in distributed systems, data pipelines, and cloud data platforms.
 
 ---
 
-💼 Open to opportunities  
-🔗 [LinkedIn](https://www.linkedin.com/in/monikashwari-s-81b080262/)
+📫 Let's connect  [LinkedIn](https://www.linkedin.com/in/monikashwari-s-81b080262/)
